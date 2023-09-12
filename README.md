@@ -1,1 +1,1 @@
-Hello. My name is *Hyo Sang* . In korean, "류효상" . :smile:
+Hello. My name is *Hyo Sang* . In korean, "*효상*" . :smile:
