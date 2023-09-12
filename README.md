@@ -1,1 +1,1 @@
-안녕하세요 한국어를 사랑하는 *류효상* 입니다. :smile:
+Hello. My name is *Hyo Sang* . In korean, "류효상" . :smile:
